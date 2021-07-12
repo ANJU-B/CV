@@ -1,3 +1,3 @@
 # CV
 
-Deatiled resume 
+Detailed resume 
